@@ -19,3 +19,5 @@
 * She has 100 acres of land to explore - tons of walking trails.
 
 * She also has other friends: Patty Cakes, 2 cats, and a bunch of chooks.
+
+*  On 13-Sep-2022, she was adopted by Moose OMalley: https://github.com/MooseValley/Moose-OMalley
