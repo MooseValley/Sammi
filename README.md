@@ -14,10 +14,10 @@
 
 * She will never be lonely or left on her own again - when I am at work, my best friend - a dog sitter - minds her.
 
-* She has 24 hour, unrestricted access to a large, fully fenced, safe lawn area.
+* She has 24/7 hour unrestricted access to a large, fully fenced, safe lawn area.
 
 * She has 100 acres of land to explore - tons of walking trails.
 
-* She also has other friends: Patty Cakes, 2 cats, and a bunch of chooks.
+* She also has other friends: Patty Cakes, 2 cats (Sneaky Cat - aka K-OS, and Friendly Cat - aka D-Struction), and a bunch of chooks.  More to come soon ...
 
 *  On 13-Sep-2022, she was adopted by Moose OMalley: https://github.com/MooseValley/Moose-OMalley
