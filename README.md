@@ -4,7 +4,7 @@
 
 * On 13-Sep-2022 I adopted her and gave her a *Forever Home* so that the last years of her life will be as happy and free as possible.  
 
-* I'm teaching her about Cat Flaps, toilet training her, giving her plenty of love and attention and food, and helping her whenever I can.  
+* I'm teaching her about Cat Flaps, giving her plenty of love and attention and food, and helping her whenever I can.  
 
 * She will never be lonely or left on her own. When I am at work, my best friend - a dog sitter - minds her.
 
