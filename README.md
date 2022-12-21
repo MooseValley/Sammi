@@ -1,5 +1,5 @@
 # About Sammi the Cocker Spaniel - aka Sammi Trailer
-![Sammi](Sammi.jpg?raw=true "Sammi")
+![Sammi](Sammi__400x313.jpg?raw=true "Sammi")
 
 * She is 16 years old and completely deaf.  
 
