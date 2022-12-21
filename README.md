@@ -1,4 +1,5 @@
 # About Sammi the Cocker Spaniel - aka Sammi Trailer
+!(Sammi.jpg?raw=true "Sammi")
 
 * She is 16 years old and completely deaf.  
 
@@ -10,7 +11,7 @@
 
 * She has 24/7 hour unrestricted access to a large, fully fenced, safe lawn area.
 
-* She has acres of land to explore - tons of walking trails.
+* She has lots of walking trails to explore with me.
 
 * She also has other friends: Patty Cakes, 2 cats (Sneaky Cat - aka K-OS, and Friendly Cat - aka D-Struction), and a bunch of chooks.  More to come soon ...
 
