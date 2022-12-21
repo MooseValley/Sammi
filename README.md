@@ -10,7 +10,7 @@
 
 * She has 24/7 hour unrestricted access to a large, fully fenced, safe lawn area.
 
-* She has 100 acres of land to explore - tons of walking trails.
+* She has acres of land to explore - tons of walking trails.
 
 * She also has other friends: Patty Cakes, 2 cats (Sneaky Cat - aka K-OS, and Friendly Cat - aka D-Struction), and a bunch of chooks.  More to come soon ...
 
