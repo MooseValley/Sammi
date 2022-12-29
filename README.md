@@ -15,4 +15,4 @@
 
 * She also has other friends: Patty Cakes, 2 cats (Sneaky Cat - aka K-OS, and Friendly Cat - aka D-Struction), and a bunch of chooks.  More to come soon ...
 
-*  On 13-Sep-2022, she was adopted by Moose OMalley: https://github.com/MooseValley/Moose-OMalley
+* On 13-Sep-2022, she was adopted by Moose OMalley: https://github.com/MooseValley/Moose-OMalley
